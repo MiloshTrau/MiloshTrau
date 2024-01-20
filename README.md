@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @MiloshTrau
+- 👀 I’m interested in code, crypto, economy.
